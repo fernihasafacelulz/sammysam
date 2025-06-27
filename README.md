@@ -3,7 +3,7 @@
 
 <p align= "center"> " <b> He should've stayed with you! </b>, I don't want hackers in my favorite game *!* "
 
-<p align= "center"> <img src=https://64.media.tumblr.com/e09ba577fc7778133dd93776297b9ce7/7427daf6b63cd503-c4/s2048x3072/aaf80af04bce761e3188cecd3cbfd3902c823ffa.pnj height= 125 > </p>
+<p align= "center"> <img src=https://64.media.tumblr.com/e09ba577fc7778133dd93776297b9ce7/7427daf6b63cd503-c4/s2048x3072/aaf80af04bce761e3188cecd3cbfd3902c823ffa.pnj height= 500 > </p>
 
 <p align= "center"> <b> sam & fern </b> <img src= "https://64.media.tumblr.com/394adbab844788a8abf3d6bf2612642e/3a5542008d628869-d7/s250x400/f45fac0369702fa75ed5629f52b67f6507fb8065.pnj" width= 20> he / him / etc </p>
 <p align= "center"> unlabeled trans boy <img src= "https://64.media.tumblr.com/f1074b9f5cd29e732f5d7d2610ac455f/72ab9934f1493dcb-0f/s250x400/8ca25949c201301e52b19a581af2db83fdf5f79f.pnj" width= 20> sd / ihasafacelulz int </p>
