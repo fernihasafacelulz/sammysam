@@ -3,8 +3,8 @@
 
 <p align= "center"> " <b> He should've stayed with you! </b>, I don't want hackers in my favorite game *!* "
 
-<p align= "center"> <img src=![image](https://github.com/user-attachments/assets/b4fb3dc9-8398-4f96-a25a-998f4d226686)"> </p>
+<p align= "center"> <img src=https://64.media.tumblr.com/e09ba577fc7778133dd93776297b9ce7/7427daf6b63cd503-c4/s2048x3072/aaf80af04bce761e3188cecd3cbfd3902c823ffa.pnj> </p>
 
-<p align= "center"> <b> sam & fern </b> <img src= "https://64.media.tumblr.com/c4677cd2739662e650b9b54a730631d1/254aa231130777ad-e0/s75x75_c1/f7a44f69a1b486ba91f64b1c4681bd195e89a09b.gif" width= 20> he / him / etc </p>
-<p align= "center"> unlabeled trans boy <img src= "https://64.media.tumblr.com/95479d13d3ece4df8be483af0e2c66a4/254aa231130777ad-75/s75x75_c1/98f469d1fae6c2987127196cb5f5ef56d910be32.gif" width= 20> sd / ihasafacelulz int </p>
+<p align= "center"> <b> sam & fern </b> <img src= "https://64.media.tumblr.com/394adbab844788a8abf3d6bf2612642e/3a5542008d628869-d7/s250x400/f45fac0369702fa75ed5629f52b67f6507fb8065.pnj" width= 20> he / him / etc </p>
+<p align= "center"> unlabeled trans boy <img src= "https://64.media.tumblr.com/f1074b9f5cd29e732f5d7d2610ac455f/72ab9934f1493dcb-0f/s250x400/8ca25949c201301e52b19a581af2db83fdf5f79f.pnj" width= 20> sd / ihasafacelulz int </p>
 <p align= "center"> <img src= https://64.media.tumblr.com/b8c2e2f9523e706a3c27656fc182d23c/d083df8da3513e0a-e5/s400x600/241ac9281ad05dca4eff8d31aa575e2d9eedafa9.pnj">
